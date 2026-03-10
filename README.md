@@ -1,0 +1,31 @@
+# MONGOL800 – DON'T WORRY BE HAPPY
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Don't worry be happy.
+It's my life.
+晴れた日の日曜日
+短く長い一日の始まり
+決められたする事もなく
+ブラブラ町を歩く
+透きとおる青い空
+太陽さえもじゃまなくらい
+2人で HAPPY LUNCH TIME
+お腹も愛も満タン
+僕とあなたと 2人だけで
+素敵な星空がくるまで
+幸せな時を過ごすこと
+Don't worry be happy.
+Happy Sunday. It's my life
+どうしたの?
+何があったの
+何をそんなに悩んでるの
+でも心配することなんて
+何一つもないよ
+簡単に自分を責めたり
+自信をなくさないで
+もう 明日は日曜日
+Don't worry be happy.
+Happy Sunday. It's my life
+```
